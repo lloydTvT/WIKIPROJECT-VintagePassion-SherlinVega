@@ -1,4 +1,4 @@
-# WIKIPROJECT-VintagePassion-SherlinVega
+# VINTAGE FASHION
 Mini Project: a project of our weirdest passions, must contain a README. file, 3 Branches, and a landing page. I'll be talking about Vintage fashion, Vintage music and Artist who bring the different style of vintage to this new world of modern technology and modern fashion. The Art of faashion 
 
 ## Vintage fashion
@@ -11,3 +11,8 @@ Vintage fashion has its ways of coming back in lots of shape or form, Vintage be
 The idea of **Thrifting** founded in the 19th and 20th century became popular, going to shops with used clothing and items giving the accessories and clothing you wear the fashionably historical vibe you need to walk down the streets of Manhattan with. Original it was supposed to reduce fabric waste, but eventually became a good to place to find your fashionalble garments for your evening dinning. 
 
 <img width="1600" height="1160" alt="image" src="https://github.com/user-attachments/assets/41725ecc-4eb2-4ddd-b4fb-39ed7bee2190" />
+
+### The role models of Vintage fashion
+There are so many artist now in days that surround themselves with this sort of fashion, The sexy and empowering style. Bright, fun, disco and iconic all in one look or song. FOr instance, Take The VMA's and The met gala, The themes are usually themed and when they are there are always specific artist who wrap themselves in a Marylin Monroe blanket or an Elvis Presley coded accesory. Artist like Doja cat, Sabrina Carpetner, Bensone Boone, Sombr and Beyonce. All bringing 5 different versions of America in different state of fashion in so many unique and different ways.
+
+The 2025 VMA carpet walk was full of so many amazing looks. For example, Doja Cat bring her furocious sparkly look from the diamond-printed mini dress and mega-platform heels, to the voluminously-coiffed hairstyled by hair **guru JStayReady** — and bright red lip, applied by artist makeup Ivan Núñez, Bring us a fun . She destroyed the VMA red-carpet while Sabrina 
