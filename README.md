@@ -10,4 +10,4 @@ Vintage fashion has its ways of coming back in lots of shape or form, Vintage be
 ### Thrifting
 The idea of **Thrifting** founded in the 19th and 20th century became popular, going to shops with used clothing and items giving the accessories and clothing you wear the fashionably historical vibe you need to walk down the streets of Manhattan with. Original it was supposed to reduce fabric waste, but eventually became a good to place to find your fashionalble garments for your evening dinning. 
 
-![alt text]([https://www.google.com/imgres?q=vogue%20pictures&imgurl=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fen%2F7%2F7b%2FUS_Vogue_Digital_Edition_December_2024.jpg&imgrefurl=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FVogue_(magazine)&docid=a43e91sFzogh9M&tbnid=iRE6_zxa5lto7M&vet=12ahUKEwjso-nr-dqPAxXLAHkGHWclA4sQM3oECB8QAA..i&w=282&h=353&hcb=2&ved=2ahUKEwjso-nr-dqPAxXLAHkGHWclA4sQM3oECB8QAA))
+<img width="1600" height="1160" alt="image" src="https://github.com/user-attachments/assets/41725ecc-4eb2-4ddd-b4fb-39ed7bee2190" />
