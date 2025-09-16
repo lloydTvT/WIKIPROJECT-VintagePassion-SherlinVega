@@ -15,4 +15,11 @@ The idea of **Thrifting** founded in the 19th and 20th century became popular, g
 ### The role models of Vintage fashion
 There are so many artist now in days that surround themselves with this sort of fashion, The sexy and empowering style. Bright, fun, disco and iconic all in one look or song. FOr instance, Take The VMA's and The met gala, The themes are usually themed and when they are there are always specific artist who wrap themselves in a Marylin Monroe blanket or an Elvis Presley coded accesory. Artist like Doja cat, Sabrina Carpetner, Bensone Boone, Sombr and Beyonce. All bringing 5 different versions of America in different state of fashion in so many unique and different ways.
 
-The 2025 VMA carpet walk was full of so many amazing looks. For example, Doja Cat bring her furocious sparkly look from the diamond-printed mini dress and mega-platform heels, to the voluminously-coiffed hairstyled by hair **guru JStayReady** — and bright red lip, applied by artist makeup Ivan Núñez, Bring us a fun . She destroyed the VMA red-carpet while Sabrina 
+The 2025 VMA carpet walk was full of so many amazing looks. For example, Doja Cat bring her furocious sparkly look from the diamond-printed mini dress and mega-platform heels, to the voluminously-coiffed hairstyled by hair **guru JStayReady** — and bright red lip, applied by artist makeup Ivan Núñez, Bring us a fun . She destroyed the VMA red-carpet while Sabrina during the VMA's showed up in custome Valentino, a sheer crimson-colored custom Valentino lace dress, which she accessorized with a light pink furry boa that she draped over her arms, as well as Tiffany & Co. jewelry. 
+
+The VMA's is know for red Carpet looks and truly remarkable how role model and celebrites bring culture and experience with just clothing and that's what this Wiki going to be essentially about. The Style of Vintage culture in the year 2025.
+
+<img width="1242" height="828" alt="image" src="https://github.com/user-attachments/assets/45a63cba-e52a-4059-9a87-94f24cd01988" />
+#### **Sabrina Carpenter - VMA red carpet 2025**
+
+ 
