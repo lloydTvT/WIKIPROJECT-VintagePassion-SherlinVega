@@ -20,6 +20,6 @@ The 2025 VMA carpet walk was full of so many amazing looks. For example, Doja Ca
 The VMA's is know for red Carpet looks and truly remarkable how role model and celebrites bring culture and experience with just clothing and that's what this Wiki going to be essentially about. The Style of Vintage culture in the year 2025.
 
 <img width="1242" height="828" alt="image" src="https://github.com/user-attachments/assets/45a63cba-e52a-4059-9a87-94f24cd01988" />
-#### **Sabrina Carpenter - VMA red carpet 2025**
+ **Sabrina Carpenter - VMA red carpet 2025**
 
  
