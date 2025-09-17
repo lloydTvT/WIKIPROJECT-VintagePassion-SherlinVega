@@ -11,5 +11,6 @@ She has multiple songs with the *1930s* and *1940s*, With her recent song 'TEARS
 #### Sabrina Carpenter's time code
 The aesthetic thurally associated with Sabrina Carpenter would render around The Disco era, Disco fashion featured body-conscious styles with high-shine fabrics like sequins, satin, and metallics, paired with comfortable, dance-friendly elements such as flared pants, jumpsuits, tube tops, and wrap dresses while Sabrina Carpenter sophisticated "pop couture" aesthetic, characterized by hyper-feminine silhouettes, playful pastel and sparkly fabrics, and influences from Madonna and Marilyn Monroe. Marylin Monroe and Madonna being figures from the year *1926* and *1962*. She's worn outfits straight out of Marylin Monroe's person in **VOGUE** *feburary 11th of 2025*, to refrencing old films like 1992 cult classic **'Death Becomes Her'**, the 1960 horror film **Psycho**, and the 1993 sequel **'Addams Family Values'** in her music video Taste with *Jenna Ortega*. She even goes as far as to Collaborating with Country star Dolly Parton in her Music video **'Please Please Please'** from the Dulex *'Short and Sweet' album.
 
-<img width="686" height="386" alt="image" src="https://github.com/user-attachments/assets/b6a2a4ae-46d7-4c1c-a85c-cb7890dcf24b" />
+<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/13ec8400-c550-4fe9-9533-c161e3cc57af" />
+
 
