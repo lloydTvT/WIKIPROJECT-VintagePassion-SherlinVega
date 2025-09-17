@@ -21,6 +21,6 @@ Doja Cat ahs a huge reputation for her bold and *"Out in the open fashion sense'
 #### Doja cat's Fashion Analysis
 Doja Cat's fashion analysis reveals an "eclectic," bold, and experimental style characterized by a willingness to take risks, push boundaries, and blend high glamour with theatricality and humor. It alligns with the *'Electric Era'* Around the *1980s* and a *1960s* trend inspired by the Space Race, featuring futuristic, often geometric silhouettes made from innovative synthetic materials like plastic and metal, Which is shown in Doja cat's Fashion sense in her Music video **'Get Into it (Yuh)'** and her music video **'I Need To Know'**. late 1930s/WWII era with Elsa Schiaparelli's **"Shocking Pink,"** the 1950s for its **"Think Pink!"** movement, the bold 1980s with their neon palette, the 2010s millennial pink trend, and the recent rise of Barbiecore in the early 2020s, Which was After Doja Cat's *'Hot Pink' album cover. Groovy style was most prominent in the late 1960s and throughout the 1970s, evolving from the hippie movement to the disco era which associated with Doja Cat's aesthetic in the **'Say So'** Musi video.
  
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/e521f57a-37a6-47b7-9fe8-831fb5a1d0e3" />
+<img width="1200" height="660" alt="image" src="https://github.com/user-attachments/assets/e521f57a-37a6-47b7-9fe8-831fb5a1d0e3" />
 
 
