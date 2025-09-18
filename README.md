@@ -21,6 +21,13 @@ The VMA's is know for red Carpet looks and truly remarkable how role model and c
 
 <img width="1242" height="828" alt="image" src="https://github.com/user-attachments/assets/45a63cba-e52a-4059-9a87-94f24cd01988" />
 
-*Sabrina Carpenter*
+
+## SUBTOPICS 
+
+### MUSIC & FASHION
+
+### INFLUENCE IN 2025
+
+### INSPIRATIONS OF 2025
 
  
