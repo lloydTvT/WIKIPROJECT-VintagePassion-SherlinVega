@@ -1,4 +1,4 @@
-# Vintage Influence in Music
+# Vintage Aesthetic in Music & Fashion
 
 ## Artist 
 There are multiple artist who follow the Vintage Aesthetic, Music and fashion sense. There's a long list only a select few made it on my list, It wasn't an easy pick but my best options for the best Artist today's date that follow Vintage Aesthetics to bring us the cultural vibes and style. 
