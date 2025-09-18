@@ -38,6 +38,11 @@ Dark apparel fashion history shows a shift from its ancient use in Egyptian roya
 ## Songs
 Song and Music video in 2025 come out to be either amazing or Half good. 
 
+### Tears
+<img width="2048" height="1241" alt="image" src="https://github.com/user-attachments/assets/fbf6815d-1d41-4fb4-9057-68d862973155" />
+
+
+
 
 
 
