@@ -29,6 +29,15 @@ Sombr is the indie pop project of New York City-born musician Shane Michael Boos
 
 Sombr won his first Moonman during the VMAs, Wearing mystic-inspired Valentino tuxedo featuring an embroidered lapel, a tasseled sash, a striped shirt, and studded pointed boots. His music gives the mixture Rock, Indie music and Alternative Pop music. His fashion sense of New Yoker cultural street wear with leather, black and a rock sense of fashion.
 
+#### Sombr's Fashion Analysis
+Dark apparel fashion history shows a shift from its ancient use in Egyptian royalty and Roman mourning to its Renaissance status as a symbol of power, wealth, and piety. Sombr has a main aesthetic blending New York streetwear and Los Angeles bohemian vibes, characterized by oversized sweaters, vintage denim, and layered accessories that are both deliberate and effortlessly stylish. For now that he's bringing to the table and it's totally outstanding.
+
+<img width="1222" height="817" alt="image" src="https://github.com/user-attachments/assets/43666e8f-ef87-4a46-849a-620dd98c4991" />
+
+
 ## Songs
+Song and Music video in 2025 come out to be either amazing or Half good. 
+
+
 
 
