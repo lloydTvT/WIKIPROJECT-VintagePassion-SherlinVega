@@ -25,6 +25,10 @@ The VMA's is know for red Carpet looks and truly remarkable how role model and c
 ## SUBTOPICS 
 
 ### MUSIC & FASHION
+<img width="1296" height="730" alt="image" src="https://github.com/user-attachments/assets/286ec0ad-860f-4812-b52b-99245d76d65e" />
+
+
+
 
 ### INFLUENCE IN 2025
 
