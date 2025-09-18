@@ -40,6 +40,22 @@ Song and Music video in 2025 come out to be either amazing or Half good.
 
 ### Tears
 <img width="2048" height="1241" alt="image" src="https://github.com/user-attachments/assets/fbf6815d-1d41-4fb4-9057-68d862973155" />
+"Tears" is a 2025 song by Sabrina Carpenter from her seventh album, Man's Best Friend, which details her appreciation for responsible partners. The second single from the album, "Tears" was released with a cinematic music video that features a Rocky Horror Picture Show-inspired world with Colman Domingo in drag. The video, which Carpenter calls "playful and sexy," was released on the same day as the album, on August 29, 2025. The tears music video has multiple elements of what we're looking for, and we'll break it down to analyze this one by one.
+
+First off, The music video starts off with Sabrina wearing an archival piece from **Versace Spring 1995**, with a  Vintage hite hat an dsheer gloves with white heels. Then, Sabrina Carpenter wore a vintage-inspired look featuring a custom-designed, pale blue lingerie set created in collaboration with Victoria's Secret and designer Jared Ellner. Her main vibes for the music video being Disco and Hyperfeminie with the lyrics. In the song she sings about the qualities she values most in a man, Which is everyone women's dream now but even more popular of an idea in the 1900s. 
+
+### Lover Girl 
+"Lover Girl" is a recent song by the Icelandic-Chinese singer-songwriter Laufey Lín Jónsdóttir, also known as Laufey. Released in June 2025 as a single from her album A Matter of Time, the bossa nova-influenced track explores the feeling of being deeply in love with someone from afar, a sentiment Laufey herself experienced while on her Bewitched Tour in Tokyo. 
+
+Laufey Is know for her Bossa nova and jazz like vintage style, She has been working on her musical career since 2020.  Bossa nova is a musical genre that emerged from Rio de Janeiro, Brazil, in the late 1950s, a fusion of samba and jazz characterized by its soft, understated vocals, complex jazz harmonies, and intricate guitar work while Jazz music emerged from African-American communities in New Orleans in the late 19th and early 20th centuries, developing from blues, ragtime, and other folk music traditions.
+
+Lover Girl has a That very romantical vibe that would remind you of a highschool girl in love for the first time, Explaining the irony of this type love, the daydreamy like music Creating a vintage 1970s romance story Laufey sets for once imainary stage in they're head.
+
+<img width="1600" height="838" alt="image" src="https://github.com/user-attachments/assets/505b5f89-68e2-4067-af3e-e2c561ea6977" />
+
+
+ 
+
 
 
 
