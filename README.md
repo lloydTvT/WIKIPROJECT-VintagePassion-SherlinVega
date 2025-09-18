@@ -1,4 +1,4 @@
-# VINTAGE FASHION
+# VINTAGE AESTHETIC
 Mini Project: a project of our weirdest passions, must contain a README. file, 3 Branches, and a landing page. I'll be talking about Vintage fashion, Vintage music and Artist who bring the different style of vintage to this new world of modern technology and modern fashion. The Art of faashion 
 
 ## Vintage fashion
@@ -22,10 +22,25 @@ The VMA's is know for red Carpet looks and truly remarkable how role model and c
 <img width="1242" height="828" alt="image" src="https://github.com/user-attachments/assets/45a63cba-e52a-4059-9a87-94f24cd01988" />
 
 
+
+
+
+
+
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+
 ## SUBTOPICS 
 
 ### MUSIC & FASHION
 <img width="1296" height="730" alt="image" src="https://github.com/user-attachments/assets/286ec0ad-860f-4812-b52b-99245d76d65e" />
+There are multiple artist who follow the Vintage Aesthetic, Music and fashion sense. There's a long list only a select few made it on my list, It wasn't an easy pick but my best options for the best Artist today's date that follow Vintage Aesthetics to bring us the cultural vibes and style. 
+
+[Home page](https://github.com/lloydTvT/WIKIPROJECT-VintagePassion-SherlinVega/blob/Main/(Music)%20README.md) 
+
+
 
 
 
