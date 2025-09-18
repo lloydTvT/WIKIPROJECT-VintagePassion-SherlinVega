@@ -21,24 +21,13 @@ The VMA's is know for red Carpet looks and truly remarkable how role model and c
 
 <img width="1242" height="828" alt="image" src="https://github.com/user-attachments/assets/45a63cba-e52a-4059-9a87-94f24cd01988" />
 
-
-
-
-
-
-
-
-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-
-
-
-## SUBTOPICS 
+# SUBTOPICS 
 
 ### MUSIC & FASHION
 <img width="1296" height="730" alt="image" src="https://github.com/user-attachments/assets/286ec0ad-860f-4812-b52b-99245d76d65e" />
 There are multiple artist who follow the Vintage Aesthetic, Music and fashion sense. There's a long list only a select few made it on my list, It wasn't an easy pick but my best options for the best Artist today's date that follow Vintage Aesthetics to bring us the cultural vibes and style. 
 
-[Home page](https://github.com/lloydTvT/WIKIPROJECT-VintagePassion-SherlinVega/blob/Main/(Music)%20README.md) 
+[MUSIC and FASHION](https://github.com/lloydTvT/WIKIPROJECT-VintagePassion-SherlinVega/blob/Main/(Music)%20README.md) 
 
 
 
